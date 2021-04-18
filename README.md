@@ -1,2 +1,2 @@
 # Dens-Nuker
-weak nuker lol
+yo son
